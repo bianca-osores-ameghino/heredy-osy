@@ -1,4 +1,4 @@
-Martinez Anabel 09/01/00 
-Beltramo Priscila 07/01/00
+#Integrantes:
 
-Cantidad de integrantes 2
+*Montaldi Valentina  3 de abril del 2000
+*Russo Gianna  7 de abril del 2000
