@@ -2,13 +2,14 @@
 
 *Bianca Osores: 04/04/2000
 *Sophia Dell Arciprete: 13/04/2000. 
-Bianca y Sophi son re ortivas, aguante valentin....    
+Bianca y Sophi son re geniales   
 
 Cantidad de integrantes: 2
 
 *Montaldi Valentina:  3/04/2000
 *Russo Gianna:  7/04/2000
-
+Valen y Gianna no entienden nada de la vida.
+ 
 Cantidad de integrantes: 2
 
 
