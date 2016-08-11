@@ -5,8 +5,8 @@
 
 Cantidad de integrantes: 2
 
-*Montaldi Valentina:  3 de abril del 2000
-*Russo Gianna:  7 de abril del 2000
+*Montaldi Valentina:  3/04/2000
+*Russo Gianna:  7/04/2000
 
 Cantidad de integrantes: 2
 
