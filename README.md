@@ -8,7 +8,8 @@ Las capricornianas somos las mejores chiquisss
 
 *Bianca Osores: 04/04/2000
 *Sophia Dell Arciprete: 13/04/2000. 
-Bianca y Sophi son re ortivas, aguante valentin....    
+Bianca y Sophi son re ortivas, aguante valentin....
+Claro...    
 
 Cantidad de integrantes: 2
 
